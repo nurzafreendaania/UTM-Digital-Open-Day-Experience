@@ -1,4 +1,4 @@
-# UTM-Digital-Open-Day-Experience
+# UTM Digital Open Day Experience
 
 ![image alt](https://github.com/nurzafreendaania/UTM-Digital-Open-Day-Experience/blob/8e47a7cb0e717dd46d17b54c17886186641fdc9e/utm%20digital%20open%20day%20.jpeg)<br>
 
